@@ -14,7 +14,7 @@ Seakan hatimu bahkan jadi tampak berkilauan
 Sepatah, dua patah, tak banyak kata-kata yang kauucap  
 Lalala, lalala, apa ini disebut cinta?  
 
-Tapi ku amat suka kamu  
+Tapi ku suka, suka dikau  
 Memandangmu saja, rasa di hati membara  
 Sekarang dan esok, bagaimana?  
 Ini kan, cinta monyet semata  
@@ -27,26 +27,26 @@ Seakan setiap tempat terisi jejak langkahmu
 Sebuah, dua buah, bibit kecemasan tumbuh bertunas  
 Lalala, lalala, berkembang membuahkan cinta  
 
-Tolong, jangan sekarang  
+Tolong, bantu hentikan!  
 Ku tak bisa tenang walau hanya berpandang mata  
 Sekarang dan esok, bagaimana?  
 Ku hanya teman sekelas biasa  
-Perihnya, perihnya,  
-Jantungku pun berdetak terlalu cepat  
+Berdetak, berdetak  
+Seakan jantung 'kan segera meledak  
 Kubangkit berdiri dan bertekad ....  
 
-Tapi ku amat suka kamu  
+Tapi ku suka, suka dikau  
 Memandangmu saja, rasa di hati membara  
 Sekarang dan esok, bagaimana?  
 Ini kan, cinta monyet semata  
 
 Jarak kita berdua  
 Perlahan tertelan oleh langkah-langkah segan  
-Ku amat suka kamu, ya, sungguh  
+Ku suka, suka kamu, ya, sungguh  
 Tapi tak mungkin kausudah tahu  
 Kuyakin, kuyakin  
-Walau hanya teman sekelas biasa  
-Bagiku cinta pertamaku sungguhlah berharga  
+Walau ku, walau hanya teman sekelas  
+Bagiku inilah, ini pengalaman pertama  
 Makanya, ku berdiri di dekat tubuh tegapmu  
 
 Kini, ku menyentuh tanganmu ...  

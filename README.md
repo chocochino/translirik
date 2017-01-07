@@ -1,6 +1,6 @@
 # Translirik
 
-_Repo_ ini berisi kumpulan translirik bahasa Indonesia yang dibuat oleh [chocochino](http://soundcloud.com/chocochino). Untuk mencari lagu yang dibutuhkan, dapat menggunakan [daftar lagu di bawah](https://github.com/chocochino/translirik/#Daftar-lagu), atau kolom pencarian di dekat logo GitHub.
+_Repo_ ini berisi kumpulan translirik bahasa Indonesia yang dibuat oleh [chocochino](http://soundcloud.com/chocochino). Untuk mencari lagu yang dibutuhkan, dapat menggunakan [daftar lagu di bawah](https://github.com/chocochino/translirik/#daftar-lagu), atau kolom pencarian di dekat logo GitHub.
 
 Bagi yang membutuhkan panduan menyanyi untuk lagu-lagu yang belum memiliki panduan, sila hubungi penulis melalui pesan Soundcloud.
 
