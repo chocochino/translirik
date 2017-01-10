@@ -62,6 +62,7 @@ Intinya, tolong berikan kredit kepada saya saat memublikasikan hasil karya Anda 
 - [My Dearest](https://github.com/chocochino/translirik/blob/master/supercell%20-%20My%20Dearest.md)
 
 ## N
+- [Nandemonaiya](https://github.com/chocochino/translirik/blob/master/RADWIMPS%20-%20Nandemonaiya.md)
 
 ## O
 
