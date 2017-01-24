@@ -3,6 +3,7 @@ _Alternative title_: Doukyuusei / 同級生 / Classmates
 _Composer_: Mikito-P  
 _Original singer_: Hatsune Miku  
 _Translyric maker_: [chocochino](http://soundcloud.com/chocochino)  
+_Guide_: <https://www.smule.com/c/900166547_959994854>  
 
 ---
 
