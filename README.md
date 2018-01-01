@@ -76,6 +76,7 @@ Intinya, tolong berikan kredit kepada saya saat memublikasikan hasil karya Anda 
 - [Rebirth](https://github.com/chocochino/translirik/blob/master/164%20-%20Rebirth.md) 
 
 ## S
+- [Shissou Word](https://github.com/chocochino/translirik/blob/master/Jin%20-%20Shissou%20Word.md)
 - [Shoddy Utopia Policy](https://github.com/chocochino/translirik/blob/master/Suzumu%20-%20Shoddy%20Utopia%20Policy.md)
 - [Sugar Song and Bitter Step](https://github.com/chocochino/translirik/blob/master/UNISON%20SQUARE%20GARDEN%20-%20Sugar%20Step%20and%20Bitter%20Song.md)
 - [Summertime Record](https://github.com/chocochino/translirik/blob/master/Jin%20-%20Summertime%20Record.md)
