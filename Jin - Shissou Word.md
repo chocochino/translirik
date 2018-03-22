@@ -3,7 +3,7 @@ _Alternative title_: 失想ワアド / Shissou Warudo / Never Lost Word
 _Composer_: Jin  
 _Original singer_: Hatsune Miku  
 _Translyric maker_: [chocochino](http://soundcloud.com/chocochino)  
-_Guide_: -  
+_Guide_: <https://soundcloud.com/chocochino/chocochino-kata-kata-yang-tak-pernah-hilang>  
 
 ---
 
