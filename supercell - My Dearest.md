@@ -1,6 +1,5 @@
 # My Dearest  
-_Composer_: ryo  
-_Original singer_: Hatsune Miku  
+_Composer_: ryo    
 _Attribution_: 1st opening for Guilty Crown  
 _Translyric maker_: [chocochino](http://soundcloud.com/chocochino)  
 _Guide_: <https://soundcloud.com/chocochino/chocochino-my-dearest-indonesian-ver>  

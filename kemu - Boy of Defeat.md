@@ -1,7 +1,7 @@
 # Bocah yang Kalah
 _Alternative title_:  Haiboku no Shounen / 敗北の少年 / Boy of Defeat  
 _Composer_: kemu  
-_Original singer_: IA  
+_Original singer_: GUMI  
 _Translyric maker_: [chocochino](http://soundcloud.com/chocochino)  
 _Guide_: <https://soundcloud.com/chocochino/chocochino-boy-of-defeat>  
 **this is actually my first translyric ever!**

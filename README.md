@@ -16,8 +16,6 @@ Intinya, tolong berikan kredit kepada saya saat memublikasikan hasil karya Anda 
 
 # Daftar lagu
 
-## Symbols
-
 ## A
 - [abnormalize](https://github.com/chocochino/translirik/blob/master/Ling%20Tosite%20Sigure%20-%20abnormalize.md)
 - [Ai no Scenario](https://github.com/chocochino/translirik/blob/master/CHICO%20ft.%20Honeyworks%20-%20Ai%20no%20Scenario.md)  
@@ -73,7 +71,8 @@ Intinya, tolong berikan kredit kepada saya saat memublikasikan hasil karya Anda 
 ## Q
 
 ## R
-- [Rebirth](https://github.com/chocochino/translirik/blob/master/164%20-%20Rebirth.md) 
+- [Rebirth](https://github.com/chocochino/translirik/blob/master/164%20-%20Rebirth.md)
+- [Reincarnation](https://github.com/chocochino/translirik/blob/master/kemu%20-%20Reincarnation.md)  
 
 ## S
 - [Shissou Word](https://github.com/chocochino/translirik/blob/master/Jin%20-%20Shissou%20Word.md)

@@ -1,7 +1,7 @@
 # Kecanduan: Sindrom Idola
-_Alternative title_: カゲロウデイズ / Kagerou Deizu / Heat-haze Days  
+_Alternative title_: 過食性:アイドル症候群 / Kashokusei: Aidoru Shoukougun / Indulging: Idol Syndrome  
 _Composer_: Suzumu  
-_Original singer_: GUMI & IA   
+_Original singer_: GUMI & MAYU   
 _Translyric maker_: [chocochino](http://soundcloud.com/chocochino)  
 _Guide_: <https://soundcloud.com/chocochino/chocochino-indulging-idol-syndrome-indonesian-translyric>  
 

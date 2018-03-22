@@ -26,7 +26,7 @@ Mulai tarik tanganku
 Tak tahu, tak tahu, aku tak pernah tahu  
 Baik kebaikan setelah pukulan  
 Maupun kehangatan di tengah rinai hujan  
-Pasti sungguh, sungguh, sungguh, sungguh terasa dingin  
+Pasti sungguh, sungguh, sungguh, sungguh terasa beku  
 
 Tak mati, tak mati, mengapa ku tak mati?  
 Walaupun aku takkan bisa bermimpi  
