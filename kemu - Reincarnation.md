@@ -1,8 +1,9 @@
 # Reinkarnasi
 _Alternative title_:  リンカーネイション / Rinkaaneishon / Reincarnation  
 _Composer_: kemu  
-_Original singer_: GUMI   
+_Original singer_: GUMI & RIN  
 _Translyric maker_: [chocochino](http://soundcloud.com/chocochino)  
+_Guide_: <https://soundcloud.com/chocochino/chocochinoreincarnation-indo-ver>  
 
 ---
 
