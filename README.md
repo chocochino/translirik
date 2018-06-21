@@ -24,6 +24,7 @@ Intinya, tolong berikan kredit kepada saya saat memublikasikan hasil karya Anda 
 
 ## B
 - [Boy of Defeat](https://github.com/chocochino/translirik/blob/master/kemu%20-%20Boy%20of%20Defeat.md)
+- [Boys, Come Back to Me](https://github.com/chocochino/translirik/blob/master/Yakushimaru%20Etsuko%20-%20Boys%2C%20Come%20Back%20to%20Me%20%5BTV%20Size%5D.md)
 
 ## C
 - [Classmates](https://github.com/chocochino/translirik/blob/master/Mikito-P%20-%20Classmates.md)
