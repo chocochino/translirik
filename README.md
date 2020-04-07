@@ -64,6 +64,7 @@ Intinya, tolong berikan kredit kepada saya saat memublikasikan hasil karya Anda 
 - [Nandemonaiya](https://github.com/chocochino/translirik/blob/master/RADWIMPS%20-%20Nandemonaiya.md)
 
 ## O
+- [Onnanoko ni Naritai](https://github.com/chocochino/translirik/blob/master/Mafumafu%20-%20Onnanoko%20ni%20Naritai.md)
 
 ## P
 - [Palette](https://github.com/chocochino/translirik/blob/master/Yuyoyuppe%20-%20Palette.md)
