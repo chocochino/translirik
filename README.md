@@ -38,6 +38,7 @@ Intinya, tolong berikan kredit kepada saya saat memublikasikan hasil karya Anda 
 
 ## F
 - [fix](https://github.com/chocochino/translirik/blob/master/keeno%20-%20fix.md)
+- [Fakery Tale](https://github.com/chocochino/translirik/blob/master/DECO27%20-%20fakery%20tale.md)
 
 ## G
 - [glow](https://github.com/chocochino/translirik/blob/master/keeno%20-%20glow.md)
